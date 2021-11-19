@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jennifersager
-- 👀 I’m interested in creativity (painting, crafts, etc)
+- 👀 I love creativity.
 - 🌱 I’m learning how to program.
 - 💞️ I’m looking to expand my knowledge.
 - 📫 Reach me by email: @jennysager2194@gmail.com
