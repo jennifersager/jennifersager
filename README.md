@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @jennifersager
-- 👀 I love creativity.
-- 🌱 I’m learning how to program.
-- 💞️ I’m looking to expand my knowledge.
 - 📫 Reach me by email: @jennysager2194@gmail.com
 
 <!---
